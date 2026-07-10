@@ -3,7 +3,7 @@
 
 ---
 
-- 🌱 J'étudie actuellement la **cryptographie et l'informatique quantique**.
+
 - 📫 Pour me contacter : **sefimiakanda@gmail.com**
 
 ---
