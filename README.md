@@ -22,4 +22,4 @@
 ### 📬 Restons connectés
 
 * 💼 **LinkedIn :** [Mon Profil](www.linkedin.com/in/fidèle-miakanda)
-* 🐙 **email :** [Mon Profil(sefimiakanda@gmail.com)
+* 🐙 **email :** sefimiakanda@gmail.com
