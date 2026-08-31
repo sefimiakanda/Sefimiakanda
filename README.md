@@ -21,5 +21,5 @@
 
 ### 📬 Restons connectés
 
-* 💼 **LinkedIn :** [Mon Profil](www.linkedin.com/in/fidèle-miakanda)
+* 💼 **LinkedIn :** [Mon Profil](https://www.linkedin.com/in/fidèle-miakanda)
 * 🐙 **email :** sefimiakanda@gmail.com
